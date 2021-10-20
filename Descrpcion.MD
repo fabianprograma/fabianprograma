@@ -1,0 +1,4 @@
+- 👋 Hola, Yo soy @fabianprograma
+- 👀 Estoy interesado en la tecnologia
+- 🌱 Estoy Aprendiendo los bots
+- 💞️ Estoy pensando en colaborar con.. nadie XD
